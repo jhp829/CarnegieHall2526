@@ -18,7 +18,7 @@ Here are some concerts I am interested in, with some of the pieces and performer
 - ⭐😩Schumann: Fantasy in C
 
 ## Low Availability Concerts
-### [🤟Nov 18: Hayato Sumino](https://www.carnegiehall.org/calendar/2025/11/18/hayato-sumino-piano-0800pm)
+### [Nov 18: Hayato Sumino](https://www.carnegiehall.org/calendar/2025/11/18/hayato-sumino-piano-0800pm)
 - ⭐😩Bach: Partita 2
 - etc
 
@@ -158,4 +158,5 @@ Here are some concerts I am interested in, with some of the pieces and performer
 - Tchaik Piano Trio
 
 ### [🤟The Met Orchestra](https://www.carnegiehall.org/calendar/2026/06/18/the-met-orchestra-0800pm)
+
 - 😩Mahler 4
