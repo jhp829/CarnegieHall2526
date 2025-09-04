@@ -22,7 +22,7 @@ Here are some concerts I am interested in, with some of the pieces and performer
 - ⭐😩Bach: Partita 2
 - etc
 
-### [🤟Dec 3: Pittsburgh Symphony - Seong-Jin Cho](https://www.carnegiehall.org/calendar/2025/11/18/hayato-sumino-piano-0800pm)
+### [🤟Dec 3: Pittsburgh Symphony - Seong-Jin Cho](https://www.carnegiehall.org/Calendar/2025/12/03/Pittsburgh-Symphony-Orchestra-0800PM)
 - ⭐⭐Rach Rhapsody on a theme of Paganini
 - ⭐⭐Shostakovich 5
 
@@ -160,3 +160,4 @@ Here are some concerts I am interested in, with some of the pieces and performer
 ### [🤟The Met Orchestra](https://www.carnegiehall.org/calendar/2026/06/18/the-met-orchestra-0800pm)
 
 - 😩Mahler 4
+
