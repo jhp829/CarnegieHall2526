@@ -149,15 +149,15 @@ Here are some concerts I am interested in, with some of the pieces and performer
 - Debussy: Suite Bergamasque
 - Stravinsky: Petrouchka
 
-### [🤟Kavakos, Gil Shaham](https://www.carnegiehall.org/calendar/2026/05/15/leonidas-kavakos-violin-gil-shaham-violin-antoine-tamestit-viola-pablo-ferrand-0800pm)
+### [🤟May 15: Kavakos, Gil Shaham](https://www.carnegiehall.org/calendar/2026/05/15/leonidas-kavakos-violin-gil-shaham-violin-antoine-tamestit-viola-pablo-ferrand-0800pm)
 - Beethoven Kreutzer
 - 😩😩😩😩😩Schubert String Quintet
 
-### [Kissin](https://www.carnegiehall.org/calendar/2026/05/31/evgeny-kissin-piano-joshua-bell-violin-steven-isserlis-cello-0200pm)
+### [May 31: Kissin](https://www.carnegiehall.org/calendar/2026/05/31/evgeny-kissin-piano-joshua-bell-violin-steven-isserlis-cello-0200pm)
 - Shostakovich: Piano Trio 2
 - Tchaik Piano Trio
 
-### [🤟The Met Orchestra](https://www.carnegiehall.org/calendar/2026/06/18/the-met-orchestra-0800pm)
-
+### [June 18:🤟The Met Orchestra](https://www.carnegiehall.org/calendar/2026/06/18/the-met-orchestra-0800pm)
 - 😩Mahler 4
+
 
